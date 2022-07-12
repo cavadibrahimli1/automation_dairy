@@ -2,7 +2,7 @@
 
 
 
-![alt text](https://cdn-images-1.medium.com/max/800/1*kUaj2XZF0R75duI7Lskt2w.gif)
+![alt text](https://thumbs.gfycat.com/EnragedGoodEmeraldtreeskink-size_restricted.gif)
 ## Installation
 
 Use the package manager [pip3](https://pip.pypa.io/en/stable/) to install.
